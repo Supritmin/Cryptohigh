@@ -1,2 +1,0 @@
-# Cryptohigh
-Please follow me 
